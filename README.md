@@ -16,4 +16,4 @@ If it stifles the development of programming methodology like a duck...
 
 
 
-Then it is most certainly a platypus, and you can't tell me otherwise.
+Then it is most certainly a witch, and must be burned.
