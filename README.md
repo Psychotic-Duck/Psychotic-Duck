@@ -16,4 +16,4 @@ If it stifles the development of programming methodology like a duck...
 
 
 
-Then it is most certainly a witch, and must be burned.
+Then you certainly have something fowl running amuck.
